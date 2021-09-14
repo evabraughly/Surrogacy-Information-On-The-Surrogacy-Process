@@ -2,6 +2,7 @@
 
 <img src="http://pics.jsabeta.com/gallery/_data/i/upload/2021/05/24/20210524091429-94f671c9-me.jpg" alt="Surrogate" style="width:1000px;height:600px;">
 
+<h2>Surrogacy Information On The Surrogacy Process</h2>
 
 Whether you are interested in building your family life with the aid of surrogacy or you are a mother who wants to give the gift of life to other people, you need to fully understand the process. You need proper guidance and surrogacy information before going through the surrogacy procedure. The surrogacy procedure may vary depending on where you live, your circumstances, and your health. Every surrogacy journey is unique in its way, which is why you need to educate yourself with proper knowledge about the entire process.
 
